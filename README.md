@@ -1,3 +1,3 @@
 - 👋 Hi, I’m Sean. Founder of @nairobitechcreative
 - 👀 A Tech Start-Up brand
-- 📫 Reach me @seanwambua.com or nairobi.techcreative@gmail.com
+- 📫 Reach me nairobi.techcreative@gmail.com
